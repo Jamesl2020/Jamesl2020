@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jamesl2020
+- 👀 I’m interested in block chain technology, decentralised networks, metaverse projects
+- 🌱 I’m currently learning (and planning to learn) as much as I can about my interests
+- 💞️ I’m looking to collaborate on a metaverse project for sale of tools and goods
+-  Australian based in NSW, Hello to you all hope to hear from you at james.lewis93@hotmail.com 
